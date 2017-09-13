@@ -6,3 +6,5 @@
 - Leader of humanity - Brad Pitt
 - AI voice - some dude who played a robot before in Prometheus?
 - Young bright researcher - Joseph Gordon-Levitt
+
+# This is Trash - Your Producer
